@@ -1,0 +1,2 @@
+# CheatSuper
+Cheat
